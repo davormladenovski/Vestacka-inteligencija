@@ -1,0 +1,5 @@
+
+# Vestacka inteligencija - FINKI 
+
+
+
